@@ -5,7 +5,7 @@
 
 👉 **[立即注册超悦机场](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)**
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
@@ -312,7 +312,7 @@ iOS 用户可以使用 Shadowrocket 添加订阅配置。
 
 👉 **[立即注册超悦机场](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)**
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
