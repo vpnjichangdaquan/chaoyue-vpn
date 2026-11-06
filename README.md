@@ -3,9 +3,9 @@
 
 > 超悦机场（Chaoyue Airport）是一款网络订阅服务平台，支持 Clash、Shadowrocket、Sing-box 等主流客户端，提供多协议节点订阅服务。适用于 AI 工具访问、跨境办公、海外学习、流媒体观看等网络使用场景。
 
-👉 **[立即注册超悦机场](https://a.wwaann.com/?s=chaoyue)**
+👉 **[立即注册超悦机场](https://a.ggddxx.com/?s=chaoyue)**
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -310,9 +310,9 @@ iOS 用户可以使用 Shadowrocket 添加订阅配置。
 
 如果你正在寻找 Clash 订阅、Shadowrocket 节点、Hysteria 网络服务或 AI 工具访问方案，可以通过以下入口注册：
 
-👉 **[立即注册超悦机场](https://a.wwaann.com/?s=chaoyue)**
+👉 **[立即注册超悦机场](https://a.ggddxx.com/?s=chaoyue)**
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
